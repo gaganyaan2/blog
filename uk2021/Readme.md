@@ -1,6 +1,6 @@
 # Uttarakhand 2021
 
-![trishul](https://github.com/koolwithk/blogs/uk2021/blob/main/images/1.trishul.jpg?raw=true)
+![trishul](https://github.com/koolwithk/blog/blob/main/uk2021/images/1.trishul.jpg?raw=true)
 
 #### 15th December 2021
 
