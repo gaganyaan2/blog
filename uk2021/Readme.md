@@ -1,5 +1,7 @@
 # Uttarakhand 2021
 
+![trishul](https://github.com/koolwithk/blogs/uk2021/blob/main/images/1.trishul.jpg?raw=true)
+
 #### 15th December 2021
 
 Took Rickshaw to Vikhroli. shoes was given to me by Vikas as i didn't had trekking shoe. Booked Auto Rickshaw with Uber and I got know from Vikas that Uber price is lower compare to ola, Reached Bandra, waited for train, bought some choclate and candy. It was not good candy. 
