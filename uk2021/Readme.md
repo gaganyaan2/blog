@@ -33,8 +33,11 @@ We went for dinner around 8PM and we eat alot and food was good. While talking w
 
 ![River](https://github.com/koolwithk/blog/blob/main/uk2021/images/4.base-tungnath.png?raw=true)
 
+We played Ludo before sleeping. We decided to go early for tungnath trek.
 
 #### 18th December 2021
+
+We woke around 6AM and for breakfast we had chain and Aloo paratha.
 
 #### 19h December 2021
 
