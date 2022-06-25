@@ -9,6 +9,7 @@ We were thinking about to go somewhere on 24th evening and one of our friend sug
 It took around 1 hours to fully climb the trek(some places unexplored). We can see very betutiful sepration of city and nature. We saw aeroplane plaing hide and seek in cloud.
 
 ![2](https://github.com/koolwithk/blog/blob/main/2022/1.Gavlidev/images/2.png?raw=true)
+![4](https://github.com/koolwithk/blog/blob/main/2022/1.Gavlidev/images/4.jpg?raw=true)
 
 At top It was very windy and peaceful. We sat there for more than 25 min. We talked about solar panel, Motar , how everything is connected to motor. If motor was not invented.
 
