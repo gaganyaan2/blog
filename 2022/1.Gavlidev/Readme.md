@@ -1,8 +1,8 @@
-# Galvidev small trek 
+# Gavlidev small trek 
 
 ### Date : 25-06-2022 8:30AM
 
-We were thinking about to go somewhere on 24th evening and one of our friend sugested that he have seen small trek near by Ghansholi road. Today we went there and we got to name of the place "Galvidev". Actauly it's mix of small temple + Bird Sanctuary + Waterfall. The entry gate is Beautiful. We took left from entry gate. it's very normal trek. We saw well.
+We were thinking about to go somewhere on 24th evening and one of our friend sugested that he have seen small trek near by Ghansholi road. Today we went there and we got to name of the place "Gavlidev". Actauly it's mix of small temple + Bird Sanctuary + Waterfall. The entry gate is Beautiful. We took left from entry gate. it's very normal trek. We saw well.
 
 ![frontgate](https://github.com/koolwithk/blog/blob/main/2022/1.Gavlidev/images/1.frontgate.png?raw=true)
 
