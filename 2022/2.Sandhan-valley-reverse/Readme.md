@@ -17,12 +17,12 @@ reached bhandardara there were lots of waterfalls and lot's of crowds as well. T
 Saw one well near by temple. The well water was kind of blue and also drinking water for village. The temple structure had 2 elephant statues at the top of the entry gate.
 There were cows nearby as well.
 
-![1](https://github.com/koolwithk/blog/blob/main/2022/2.Sandhan-valley-reverse/images/1.png?raw=true)
+![1](https://github.com/koolwithk/blog/blob/main/2022/2.Sandhan-valley-reverse/image/1.png?raw=true)
  
 Had round of bhandardara dam on rented boat. Everyone went to the edge of the boat and stood for photos also for view. a few times we had to move the right and left side to manage the boat levels. It took 15 minutes. There was one small place where 2 friends swimmed. It started raining and we ran toward the car. Everyone was wet though.
 had some vadapav(which was not good) + namkeen and laayi + chai. continued our journey toward Sandhan valley.(before that there was entry fee of 100 per car , 30 per person)
 
-![2](https://github.com/koolwithk/blog/blob/main/2022/2.Sandhan-valley-reverse/images/2.png?raw=true)
+![2](https://github.com/koolwithk/blog/blob/main/2022/2.Sandhan-valley-reverse/image/2.png?raw=true)
 
  
 Finally reached Sandhan valley, again took a 30 rupee per person ticket and parked our car. It was almost 5PM and we were thinking it would take 2-3 hours to come back but the reverse waterfall was a 10-15 min walk way. everywhere we could see only fog and sometimes we could not see more than 2 meters due to fog. Finally we reached the reverse waterfall and could see some of the water shower coming from below but it was not a good view of the reverse waterfall but everything around was beautiful. While coming back we lost the route due to fog and managed to get back on track in no time.
