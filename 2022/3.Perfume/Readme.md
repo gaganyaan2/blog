@@ -3,8 +3,11 @@
 ## Basic
 
 Ethnol + Compund + Base + any oil = Perfume
+
 70%    + 20%     + 5%   + 5%
+
 [      15-45 Days       ]
+
 
 ## Bases
 
