@@ -23,3 +23,8 @@ C8 - Organge
 C16 - Strawberry
 
 C series = syntactic oil
+
+## Accord (like musical notes)
+
+Rose   - 1 2 3 ...
+Jasmin - 9 8 7 ...
