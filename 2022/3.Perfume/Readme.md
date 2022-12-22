@@ -2,7 +2,7 @@
 
 ## Basic
 
-Ethnol + Compund + Base + any oil = Perfume
+Ethnol + (Compund || Base) + any oil = Perfume
 
 70%    + 20%     + 5%   + 5%
 
@@ -19,12 +19,14 @@ Ethnol + Compund + Base + any oil = Perfume
 6. Galaxolide (musk)
 7. Hedione (eg. jasmin flow in air)
 
+C series = citrus
 C8 - Organge
 C16 - Strawberry
 
-C series = syntactic oil
+Syntactic Or essential oil = top notes
 
 ## Accord (like musical notes)
 
 Rose   - 1 2 3 ...
+
 Jasmin - 9 8 7 ...
