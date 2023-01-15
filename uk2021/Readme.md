@@ -37,8 +37,17 @@ We played Ludo before sleeping. We decided to go early for tungnath trek.
 
 #### 18th December 2021
 
-We woke around 6AM and for breakfast we had chain and Aloo paratha.
+We woke around 6 AM and for breakfast we had a chain and Aloo paratha. It was very cold. rented some raincoat "poncho" and started our trekking around 6.30AM. After 10-15 min only I was feeling breathless had to slow down the trekking speed. We are talking about bears that could come in between and we were the only 2nd group to start trekking. We continued our trekking and after 1 hour we took a break at one of the stalls in between had chai and biscuits. Then again started trekking. After 1 more hours, we took a break at the start of tungnath and finally reached the temple.
+ 
+We remove our shoes and socks in front of the gate and after that, we started walking inside. The floor was so cold that we could just feel like someone is hitting on our feet with a hot iron rod. we couldn't stand on one place for more than 2 seconds. Somehow we hand durshan to Tungnath and looked around the other small temple. After the darshan, we went to wear our shoes and due to the cold weather our hands become so hard that it was quite hard to tie our shoelaces. I have to put my hand in my pocket for 2 min then i was able to feel my finger and tied my shoe. After tungnath there was one more temple nearby (Chandrashila) we also visited that. There was one unique structure of stone made by humans. We took some photos there. We returned back to our hotel. Returning part was easy and there was lot of crowds that came to tungnath.
+ 
+After reaching to our hotel we packed our bags and got a cab to Ukhimath around 5PM. As there was bad weather there were lots of landslides and most of the load was closed. so we stayed at Ukhimath for that day. We took some more umbrellas as we had only one. We also had dinner around 8 pm the dinner hotel owner was good even with the food. He forgot to give Water to us at start. He multipl
+
+
+![Tungnath](https://github.com/koolwithk/blog/blob/main/uk2021/images/4.tungnath.png?raw=true)
 
 #### 19h December 2021
+
+So all transport was badly impacted due to rain and landslide. We started walking toward our home because there was no other choice. We asked for some shortcuts from locals to get down till road and we were traveling inside local places to get to another side. We sometimes got transport as well for 3-5 km and after that, the road was closed due to landslide and we had to walk from there. We are carrying our all bags and it was tough walking around with them.
 
 #### 20h December 2021
