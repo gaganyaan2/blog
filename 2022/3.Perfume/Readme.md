@@ -52,7 +52,7 @@ eg sandarwool can be base note.
 - Ginger root oil, Cital, coumarin, linalool
 
 #### Mid notes
-- hydroxycitronellal, alpha ionone, Eugenol , polysantol
+- hydroxycitronellal, alpha ionone, Eugenol , Geraniol, polysantol
 
 #### Base notes
 - 7 base notes above
