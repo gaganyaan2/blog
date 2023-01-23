@@ -34,13 +34,23 @@ C8 - Organge
 C16 - Strawberry
 
 ## Syntactic Or essential oil 
-- Top and Mid notes
+- Top and Mid notes based on molecular weight.
 
 ## Accord (like musical notes)
 
 Rose   - 1 2 3 ...
 
 Jasmin - 9 8 7 ...
+
+## Notes
+It's all based on the molecular weight of the compounds. eg sandarwool can be base note.
+
+Top notes
+- generally Citrus (lemon, organge)
+
+Mid notes
+
+Base notes
 
 ## Others
 
