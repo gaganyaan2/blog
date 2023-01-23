@@ -69,3 +69,5 @@ eg sandarwool can be base note.
 - Perfumery Course - https://www.youtube.com/watch?v=8NMGKcybOks
 - https://www.youtube.com/@fragbrothers3743
 - Blending-Factors - https://www.trugardens.com/blogs/news/the-art-and-science-of-blending
+- Core concepts - https://www.youtube.com/watch?v=3wreqcqCSz4
+- Perfume fixative - https://www.youtube.com/watch?v=GILXJWLl_yc
