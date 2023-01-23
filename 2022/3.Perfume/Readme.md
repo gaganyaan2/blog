@@ -64,6 +64,7 @@ eg sandarwool can be base note.
 1. Ambroxen - amber woody - ealier used to come from whale
 2. tonalide - powdery musk
 - if odor strength is high needs to be diluted in DPG, Ethnol, etc.- generally 10%
+- Absolute oils - produced through solvent extraction, or more traditionally, through enfleurage
 
 ### Refrences
 - Perfumery Course - https://www.youtube.com/watch?v=8NMGKcybOks
