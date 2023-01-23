@@ -43,16 +43,29 @@ Rose   - 1 2 3 ...
 Jasmin - 9 8 7 ...
 
 ## Notes
-It's all based on the molecular weight of the compounds. eg sandarwool can be base note.
+It's all based on the **molecular weight** of the compounds. light weight used in top notes and heavy weight can be used in mid and base notes.
+eg sandarwool can be base note.
 
-Top notes
+
+#### Top notes
 - generally Citrus (lemon, organge)
+- Ginger root oil, Cital, coumarin, linalool
 
-Mid notes
+#### Mid notes
+- hydroxycitronellal, alpha ionone, Eugenol , polysantol
 
-Base notes
+#### Base notes
+- 7 base notes above
+- benzyl benzoate, farnesol, oakmoss
+- 
 
 ## Others
 
 1. Ambroxen - amber woody - ealier used to come from whale
 2. tonalide - powdery musk
+- if odor strength is high needs to be diluted in DPG, Ethnol, etc.- generally 10%
+
+### Refrences
+- Perfumery Course - https://www.youtube.com/watch?v=8NMGKcybOks
+- https://www.youtube.com/@fragbrothers3743
+- Blending-Factors - https://www.trugardens.com/blogs/news/the-art-and-science-of-blending
