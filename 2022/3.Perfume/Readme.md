@@ -49,14 +49,14 @@ eg sandarwool can be base note.
 
 #### Top notes
 - generally Citrus (lemon, organge)
-- Ginger root oil, Cital, coumarin, linalool
+- Ginger root oil, Citral, coumarin, linalool, bergamot
 
 #### Mid notes
-- hydroxycitronellal, alpha ionone, Eugenol , Geraniol, polysantol
+- hydroxycitronellal, alpha ionone, Eugenol , Geraniol(rose), polysantol, D.H.M(Dihydromyrcenol), Calone(watermelon)
 
 #### Base notes
 - 7 base notes above
-- benzyl benzoate, farnesol, oakmoss
+- benzyl benzoate, farnesol, oakmoss, Cedrol
 - 
 
 ## Others
