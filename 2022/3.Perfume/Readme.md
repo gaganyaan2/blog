@@ -1,12 +1,12 @@
 # How to make Perfume?
 
-## Basic
+## Basic perfume formula
 
-Ethnol + Base + (Compund + Perfume essential oil + DPG oil)= Perfume
+[Ethnol + Base + DPG oil + Distilled water] + (Compund + Perfume essential oil + custom )= Perfume
 
-70%    + 30%
+70%                                         + 30%
 
-[      15-45 Days       ]
+[            15-45 Days                   ] + [ 2-14 days ]
 
 
 ## Bases
