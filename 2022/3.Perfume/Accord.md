@@ -11,7 +11,7 @@ Citronella - 1g - slow
 Orange - 0.75g - fast
 Rosemary - 0.75g - fast
 Lemon - 1.25g -fast
-Rose - 0.5g - slow
+Rose - 1g - slow
 Rosemary - 0.5g 
 Jasmin - 0.5g
 Lavender - 1g
