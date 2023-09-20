@@ -23,6 +23,16 @@
 
 Aldehyde = heavy carbon molecule = stay long
 
+## Premix (Ethnol + Base + DPG oil + Distilled water)
+
+1. Base(Galaxolide) - 5%
+2. DPG - 5%
+3. Distilled water - 2.5%
+4. Hedion - 0.5 %
+5. IOSE - 0.05 %
+
+eg. 800g ethnol + 40g Galaxolide + 20g water + 40g DPG + 4g hedion + 0.4g ISOE
+
 ## C series citrus (top notes)
 
 Lemon 
